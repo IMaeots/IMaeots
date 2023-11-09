@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Indrek Mäeots.
-- 👀 I’m interested in computer science and developing.
-- 🌱 I’m currently learning Android development.
+- 👀 I’m interested in everything.
+- 🌱 I’m currently learning IT Systems Development in TalTech.
 - 🗺️ I’m looking to collaborate in the future for various projects.
 - 📫 You can contact me via E-mail: indrek160@gmail.com
 
