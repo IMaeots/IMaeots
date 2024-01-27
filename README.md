@@ -2,4 +2,4 @@
 - 👀 I’m interested in everything.
 - 🗺️ I’m looking to collaborate in the future for various projects.
 - 📫 You can contact me via E-mail: indrek160@gmail.com
-- 🌱 Check out my webpage <a href="https://www.socialswrapped.com">socialswrapped.com</a>
+- 🌱 Might have something visual on youtube: https://www.youtube.com/@IMaeots
